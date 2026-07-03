@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for shrink for brainrots offers the most advanced shrink for brainrots Script, with god mode and custom skins. Perfect for dominating
 
 
 
